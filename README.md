@@ -7,6 +7,6 @@ Profesor: Carlos Hernández
 
 https://platzi.com/profes/CodingCarlos/
 
-Si me quieres ayudar a seguir tomando clases en Platzi y tomar este curso con un mes extra de promocion puedes usar el siguiente link.
+Si me quieres ayudar a seguir tomando clases en Platzi y tomar este curso con un mes extra de promoción puedes usar el siguiente link.
 
 https://platzi.com/r/th3nolo
